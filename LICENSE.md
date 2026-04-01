@@ -1,4 +1,4 @@
-
+enter brainrot heads noban Executor: auto-enter & inf-heads is the most reliable executor for enter brainrot heads! With auto-enter and inf-heads, you'll unlock new levels of gameplay potential. Our executor is built for speed, stability, and stealth. Enjoy hassle-free execution, regular updates, and dedicated support.
 
 
 ---
